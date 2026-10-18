@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MAES840705HNLRSN01
+MAES840705HNLRSN01
